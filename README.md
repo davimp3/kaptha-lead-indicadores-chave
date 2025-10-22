@@ -1,0 +1,1 @@
+# kaptha-lead-indicadores-chave
